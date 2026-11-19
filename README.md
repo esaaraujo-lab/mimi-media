@@ -11,7 +11,6 @@ A MAISON de MiMi é uma perfumaria que vende **perfumes árabes**, **Brand Colle
 - **Miniaturas árabes** — Afeer e Arabic Collection, para conhecer sem compromisso.
 - **Kit 3 decantes à escolha** — R$100, qualquer decante menos os Tharwahh; e **presente decante** a partir de R$199 em Brand Collection.
 - **Frete grátis** — a partir de R$399 em árabes e R$199 em Brand Collection e miniaturas.
-- **Pagamento** — Pix (BR Code, sem taxa) e cartão.
 
 ## Guias e artigos
 
